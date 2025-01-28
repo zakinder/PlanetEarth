@@ -11,6 +11,10 @@ https://www.msn.com/en-us/news/technology/scientists-can-t-decide-if-consciousne
 
 ![VFP](https://github.com/zakinder/PlanetEarth/blob/main/KnowledgeBase1.gif "VFP Top Module")
 
+------------------------------------------------------------------------------------------
+ALLAH CREATED ADAM DOT BY DOT VALIDATED BY UVM HasanAli SakinderAli 100%Coverage Validated
+------------------------------------------------------------------------------------------
+
 HUMANS ANSESTORS AIR WE BREATHE MUD TO MUD EARTH WAVES SPEACKING VISION ILLUSION TEARS WHEN BORN IN OCENAN WAVES BUT WAIT THERE MORE TO UNDERSTAND
 
 PVIOTAL POINT OF VISION AND HEARINNG WHO IS THAT (ALIENS OR HUMANS)
